@@ -1,4 +1,3 @@
-## The Rainbow Bridge for NFTs
 
 <!--
 
